@@ -1,2 +1,2 @@
 ### Hi there 👋
-### I am Ephrem and you can DM me on twitter.
+### I am Efriem and you can DM me on twitter.
